@@ -18,6 +18,5 @@ I'm interested in working with you in the long term because of my experience in 
 
 If you're interested in working with me or have any further questions, please don't hesitate to contact me. I look forward to hearing from you!  
 
-Thanks,  
-
+Thanks,
 **Urvish Vaghasiya**
